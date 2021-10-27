@@ -2,8 +2,6 @@
 
 ## अहर्निशं संस्कृत वाहिनी
 
-<details markdown='1'><summary>Click to expand!</summary>
-
 सत्यं शिवं सुन्दरम् - सर्व भूत हिते रताः
 1. सेवान्यासरूपम् - विक्रयं विज्ञापनम् आलोचना विहीन
 2. सेवानिवृत्त जनाः - दूरदर्शन आकाशवाण्याः शिक्षा साहित्य
@@ -19,7 +17,7 @@
 12. सरल सुरूचिपूर्ण सुखदाई
 13. कला - गायन वादन नृत्य - शिक्षण एवं प्रस्तुति
 14. तुलनात्मक विमर्श सहयोगं
-</details>
+15. हास्य
 
 ## Channel and Internet Radio
 
@@ -27,21 +25,21 @@
 
 In so many languages TV channel exists, why not Sanskrit? 
 
-Can happen with **volunteer trust**. No selling on Channel. Right now other channels are selling stuffs. Economic perspective in selling stuffs on these channels. They also become biased etc. It ends the spirit. 
+Can happen with **volunteers' trust**. No selling on Channel. Right now other channels are selling stuffs. Commercial perspective in selling stuffs on these channels. They also become biased etc. It ends the spirit. 
 
 Akashwani, Doordarshan, Literary retired people can join in this. They are skilled. They know their work. 
 
-People learn Hindi automatically. If Sanskrit is to be taught, then it means it's difficult. 
+People learn Hindi automatically. If Sanskrit is to be taught, then it appears it's difficult. 
 
-Take money and do.
+Take money and do for services not available through volunteers. 
 
-It's story of people joining together. There is no problem of resources. People donate millions in Tirupati. 
+It's story of people joining together. There is no problem of resources. People donate Billions in Tirupati. 
 
 Bandwidth allocation for commercial. Bhandaare. Dry fruits, food. Dharmartha. Gita Press. Important work. Companies should come up. Example, one is not asking money from biscuit company, they can give biscuits. Bandwidth company can donate bandwidth. This way people can come together. 
 
 24 hours will be actually less. Lots to be shown. 
 
-People are spread out. They're held up in own opinions also. Fight between 700 or 701 verses in bhagvadgeeta.
+People are spread out. They're held up in own opinions also. Fight between 700 or 701 verses in Bhagavad Gita.
 
 Community Radio. Mobile network too much in prevalence. Internet radio. 24 hours internet radio in Sanskrit not available. 
 
@@ -63,11 +61,11 @@ All practical stuffs to be shown.
 
 Like no selling on [www.arvindguptatoys.com](www.arvindguptatoys.com). 
  
-People can donate so much time. There are so many skilled and intellectual people.
+People can donate time and skills. There are so many spirited sincere skilled and intellectual people. 
 
 Debian, or BSD type architecture. 
 
-Comparative study. What is elsewhere is also here. This we will show. China, Japan tell they follow separate Buddhism. Segregation. But all citations will come out from Sanskrit. 
+Unity of sects will be projected. Citations will come out. China, Japan tell separately they follow Buddhism. Segregation. But all citations will come out from Sanskrit. 
 
 **Education, manchan, natak. Samanya roop. Not difficult. Easy Sanskrit.** 
 
@@ -99,7 +97,7 @@ No advertisement. No ulterior motive. No photo of anyone. No selling stuffs.
 
 No narrow mindedness.  No boundaries.
 
-Too much trash on YouTube. No good material.
+Too much trash on YouTube. Rarely good material. 
 
 Astrology is not proved. Don't put that. It has not been experimentally seen. 
 
@@ -137,11 +135,11 @@ Structure must emerge.
 
 One must establish structure not people. People establishment is small. Archaryakulam. No Rajasik aadhar.
 
-Team. Rajasik. Contact increasing. Coming in limelight. Selfish cooperation. Name and contacts. Rajasik mansikta. Money accumulation, dadagiri, selling buying should not happen. Selfish cooperation is fine. 
+Team. Rajasik. Contact increasing. Coming in limelight. Selfish cooperation. Name and contacts. Rajasik mansikta. Money accumulation, bossing, selling buying should not happen. Selfish cooperation is acceptable start but not the ultimate goal. 
 
-Two houses. Upper house. Lower house. Upper house, no name no material stake. They're the ones controlling. 
+Two houses. Upper house. Lower house. Upper house is invisible hence invincible, no name no material stake. They're the ones controlling for purely altruistic reason for welfare of all beings, not just humans.
 
-People have to be open up properly. Otherwise there will be surprises later on. 
+People have to open up properly at start itself. Otherwise there will be surprises later on. 
 
 People can say they have understood later they will say you didn't say this you didn't say that.
 
@@ -149,7 +147,7 @@ Churning involved. Game of samudra manthan. Asur and devta both ran to get hold 
 
 ### INVISIBLE/UPPER HOUSE
 
-Soldiers of Britishers were sold. Soldiers like Bhagat Singh could not be bought. They're wild. Their efficiency is also high. 
+Soldiers of Britishers were sold people. Soldiers like Bhagat Singh could not be bought. They're pristine. Their efficiency is highest. 
 
 Can't be sold. Value is too much. Efficiency also too much. They're wild. 
 
