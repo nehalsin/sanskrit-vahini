@@ -33,7 +33,7 @@
 11. Free to air channel. That is how it should come. Should not be based on advertisements. 
 12. It's story of people joining together. There is no problem of resources. People donate Billions in Tirupati. 
 13. No opposition, no business, no criticism.  
-14. No selling, as on www.arvindguptatoys.com. 
+14. No selling, as on [www.arvindguptatoys.com](www.arvindguptatoys.com). 
 15. People can donate time and skills. There are so many sipirited sincere skilled and intellectual people. 
 16. Opinions, flags must not come. Should go by objective spirit. Should be not be specific to some group, side etc. 
 17. Debian, or BSD type architecture. 
@@ -42,7 +42,7 @@
 20. Unity of sects will be projected. Citations will come out. China, Japan tell separately they follow Buddhism. Segregation. But all citations will come out from Sanskrit. 
 21. 24 hours will be actually less. Lots to be shown. 
 22. In the name of news only Prime Minister news comes in government channels.
-23. samprativarta.in. Makes people read sanskrit news. Children read. 
+23. [http://www.samprativartah.in/](http://www.samprativartah.in/). Makes people read sanskrit news. Children read. 
 24. People are spread out. They're held up in own opinions also. Fight between 700 or 701 verses in BhagvadGita. 
 25. Nirnay Sagar Press. Why did it get closed? Super excellent publication quality. These days story of Gita Press closing coming. 
 26. IITs, fund raising. Madan Mohan Malviya. Beginning of a University. Ghar ghar jakar chanda ikatha kiya tha. People do big work together this way. It's matter of humans' time. 
