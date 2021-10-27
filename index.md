@@ -1,4 +1,4 @@
-# Sanskrit Vahini 2021-10-26 
+# Sanskrit Vahini  
 
 
 ## अहर्निशं संस्कृत वाहिनी
@@ -86,3 +86,5 @@
 64. People can say they have understood, later they will say you didn't say this you didn't say that.
 65. Better to have something than nothing and let it evolve. 
 66. Bhale ka phal bhala is a very neutral story. Vidur Niti. Astrology is not proved. Don't put that. It has not been experimentally seen. Karmakand. Aesa karne se aese hoga. Minus that lobby. Matth minus. Mandir minus. Churning involved. Game of samudra manthan. Asur and devta both ran to get hold of amrit kalash.
+
+**Last Updated on 2021-10-27**
