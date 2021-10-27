@@ -25,7 +25,7 @@
 
 In so many languages TV channel exists, why not Sanskrit? 
 
-Can happen with **volunteers' trust**. No selling on Channel. Right now other channels are selling stuffs. Commercial perspective in selling stuffs on these channels. They also become biased etc. It ends the spirit. 
+Can happen with **volunteers' Trust**. No selling on Channel. Right now other channels are selling stuffs. Commercial perspective in selling stuffs on these channels. They also become biased etc. It ends the spirit. 
 
 Akashwani, Doordarshan, Literary retired people can join in this. They are skilled. They know their work. 
 
