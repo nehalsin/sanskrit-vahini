@@ -61,13 +61,13 @@ All practical stuffs to be shown.
 
 **No opposition, no business, no criticism**.
 
-Like no selling on www.arvindguptatoys.com. 
+Like no selling on [www.arvindguptatoys.com](www.arvindguptatoys.com). 
  
 People can donate so much time. There are so many skilled and intellectual people.
 
 Debian, or BSD type architecture. 
 
-Comparative study. What is elsewhere is also here. This we will show. People tell Buddhism different from Sanskrit. But all citations will come out. China, Japan tell separately they follow Buddhism. Segregation. But all citations will come out from Sanskrit. 
+Comparative study. What is elsewhere is also here. This we will show. China, Japan tell they follow separate Buddhism. Segregation. But all citations will come out from Sanskrit. 
 
 **Education, manchan, natak. Samanya roop. Not difficult. Easy Sanskrit.** 
 
@@ -109,7 +109,7 @@ samprativarta.in. Makes people read sanskrit news. Children read.
 
 Nirnay Sagar Press. Why did it get closed? Super excellent publication quality. These days story of Gita Press closing coming.
 
-Madan Mohan Malviya. Beginning of a University. Ghar ghar jakar chanda ikatha kiya tha. People do big work together this way. It's matter of humans' time. 
+Madan Mohan Malviya. Beginning of a University. Collected funds by visiting every house. People do big work together this way. It's matter of humans' time. 
 
 ## Broad-base thinking
 
@@ -125,7 +125,7 @@ Merit establishment and recognition in FOSS. Picolisp. Academic merit. Community
 
 Even in 40yp it is given that people will not be coming for idealism, they will be coming for quality of life. 
  
- Even in this case, people will watch this channel as they will find useful information that can be understood. 
+Even in this case, people will watch this channel as they will find useful information that can be understood. 
  
 Important for teaching freshers and retired. Earlier in between cannot come to that extent.
    
@@ -155,7 +155,7 @@ Can't be sold. Value is too much. Efficiency also too much. They're wild.
 
 Pushpa Dikshit ji did so much and has been doing lot of work.
 
-Invisible group will manage. Tapasvi. Saamne nahi aana hai. Lokeshna, vitteshna, putreshna. They will be listened to. This architecture must come up. Invisible but can control. Such people are needed. Also in 40yp like that, community wisdom through people who are visible. They're handful of party people now. About 300. Whereas thousands of people in communities. What we are talking is real democracy. What we see is something else in name of democracy. 
+Invisible group will manage. No desires - Lokeshna, vitteshna, putreshna. They will be listened to. This architecture must come up. Invisible but can control. Such people are needed. Also in 40yp like that, community wisdom through people who are visible. They're handful of party people now. About 300. Whereas thousands of people in communities. What we are talking is real democracy. What we see is something else in name of democracy. 
 
 Even in invisible house there can be problems. 
 
